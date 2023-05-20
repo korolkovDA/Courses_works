@@ -1,2 +1,2 @@
 # Courses_works
-My courses work with my scientific director
+My annual courses work with my scientific director.
